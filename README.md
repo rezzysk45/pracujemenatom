@@ -1,0 +1,2 @@
+# pracujemenatom
+pracujemenatom
